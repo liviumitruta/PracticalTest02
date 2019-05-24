@@ -1,1 +1,1 @@
-# PracticalTest02
+Mitruta Liviu-Andrei 341C1
